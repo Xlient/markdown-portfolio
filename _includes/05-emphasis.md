@@ -1,0 +1,3 @@
+- **Quick Learner**
+- Patient
+- Work well with teams
